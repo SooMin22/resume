@@ -1,4 +1,4 @@
-# 신수민 / ShinSoo-Min
+# 신수민 / SooMin22
 
 
 ### 1. 인적사항(Personal Information)  
